@@ -21,15 +21,11 @@ In rete si trovano tantissime guide e presunti metodi magici, ma la verità è u
 
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
-
-<h1>⬆️ ⬆️ ⬆️</h1>
 
 </div>
 
@@ -80,14 +76,10 @@ Amico mio, siamo arrivati alla fine di questa guida e voglio parlarti con il cuo
 
 <div align="center">
 
-<h1>⬇️ ⬇️ ⬇️</h1>
-
 <h1>
-<a href="https://paginadownload.netlify.app/">
-🚀 CLICCA QUI PER SCARICARE I TRUCCHI 🚀
+<a href="https://shr.pn/goblingioco">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
 </a>
 </h1>
-
-<h1>⬆️ ⬆️ ⬆️</h1>
 
 </div>
